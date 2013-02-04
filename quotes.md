@@ -1,4 +1,4 @@
-Taken from [Wikiquote](http://en.wikiquote.org/wiki/Community_(TV_series)) - copyright [CC-BY-SA 3.0](http://creativecommons.org/licenses/by-sa/3.0/)
+Taken from [Wikiquote](http://en.wikiquote.org/wiki/Community_%28TV_series%29) - copyright [CC-BY-SA 3.0](http://creativecommons.org/licenses/by-sa/3.0/)
 
 # Season 1
 
